@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/f6c0ba78-f980-4bdc-85f7-237d7384cb8a)![image](https://github.com/user-attachments/assets/291f1061-78f5-4d9b-a4f6-0cd0a554724b)# Need Mentor? 🤔
+# Need Mentor? 🤔
 
 Консультация - 8500р/час
 [Телега для записи](https://t.me/reatrof)
